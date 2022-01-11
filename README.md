@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @chamod
 
-![logo](https://ibb.co/b6StQzG)
+![logo] (https://ibb.co/b6StQzG)
 
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
