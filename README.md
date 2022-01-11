@@ -1,4 +1,10 @@
-- 👋 Hi, I’m @chamod
+<a href="https://ibb.co/KWMJBRC"><img src="https://i.ibb.co/KWMJBRC/animated-welcome-image-0291.gif" alt="animated-welcome-image-0291" border="0"></a>
+
+🧚‍♀️WELCOME TO MY PROFILE👒
+
+
+
+👋 Hi, I’m @chamod
 
 
 
